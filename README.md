@@ -7,4 +7,4 @@ Me chamo Cauã Ramos Barbosa, tenho 16 anos e estou cursando o segundo ano do en
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-![]((https://tenor.com/pt-BR/view/the-wok-the-rock-the-rock-sus-the-rock-meme-the-rock-eyebrows-gif-23750956))
+![](https://tenor.com/pt-BR/view/the-wok-the-rock-the-rock-sus-the-rock-meme-the-rock-eyebrows-gif-23750956)
